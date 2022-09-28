@@ -2,7 +2,7 @@
 
  𝐖𝐄𝐋𝐂𝐎𝐌𝐄 𝐓𝐎 𝐌𝐘 𝐇𝐀𝐂𝐊𝐈𝐍𝐆 𝐒𝐄𝐑𝐕𝐄𝐑
 
-<p align="center"><a href="https://t.me/Romeoooraj143"><img src="https://telegra.ph/file/603f08f3ddd590395485a.jpg"></a></p>
+<p align="center"><a href="https://t.me/Romeoooraj143"><img src="https://telegra.ph/file/c0230e6375b716a3b8853.jpg"></a></p>
 
 ### SECRETS COPY HERE AND PUT THERE VALUE ☟︎︎︎☟︎︎︎☟︎︎︎
 
